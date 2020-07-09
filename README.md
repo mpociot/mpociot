@@ -10,10 +10,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b2738d0ed0c4517c60b9927937fd">](https://open.spotify.com/track/4QTBcmy1AOw7vL5bzLZknI)
-The Black Dahlia Murder - Verminous
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273eb30bac2f5895d442897d7ae">](https://open.spotify.com/track/3FlI2eja7eNFekYk3vtLZO)
+DADS - Dads (feat. Berried Alive &amp; Lucas Mann)
 
-**Album:** Verminous
+**Album:** Dads (feat. Berried Alive &amp; Lucas Mann)
 
 &nbsp;
  
