@@ -2,10 +2,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b27389ae759ef0f3b346f8f55db4">](https://open.spotify.com/track/1lHWHBeiWUSM2SOYyPhYtw)
-Protest The Hero - Gardenias
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273353d7e63451cbb0b64e708a9">](https://open.spotify.com/track/3m5A9kaeOKN4FWEHOGSN2s)
+TesseracT - Dystopia
 
-**Album:** Palimpsest
+**Album:** Polaris
 
 &nbsp;
  
