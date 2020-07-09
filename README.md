@@ -2,10 +2,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b2732568bc6ec54522face2a27af">](https://open.spotify.com/track/6dfiHpYb2ciw2urKenpdyC)
-Monuments - Leviathan
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273038ee15dc9cb1c8699c36676">](https://open.spotify.com/track/5iVzSOecpQbFu2zZ70OnI2)
+Danger - 11:03
 
-**Album:** Phronesis
+**Album:** 太鼓
 
 &nbsp;
  
