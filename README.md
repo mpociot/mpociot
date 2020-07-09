@@ -4,10 +4,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273c4a605f426c97126212d52a2">](https://open.spotify.com/track/43gDYJRmGzibVBhYOtoCmF)
-Dispatch - Passerby
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b2737805654f39f6d2f79d817fb8">](https://open.spotify.com/track/4CCg6GBrbHLmrvwQZn04Wn)
+The Reign of Kindo - Breathe Again
 
-**Album:** Who Are We Living for?
+**Album:** Rhythm, Chord &amp; Melody
 
 &nbsp;
  
