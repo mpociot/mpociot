@@ -10,12 +10,7 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273a335f2f17db481c4ee8736be">](https://open.spotify.com/track/6PvGw2GQjGRQPyqrwMlLPS)
-Sithu Aye - The Andromedan, Pt. II: Mystic Village
-
-**Album:** Set Course for Andromeda
-
-&nbsp;
+Nothing 🙉
  
 
 ---
