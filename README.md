@@ -2,10 +2,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273038ee15dc9cb1c8699c36676">](https://open.spotify.com/track/5iVzSOecpQbFu2zZ70OnI2)
-Danger - 11:03
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273d3d227f6083fe51956e36e36">](https://open.spotify.com/track/7p2ROQkJ8IvOiyjZB8tKdk)
+Aversions Crown - Erebus
 
-**Album:** 太鼓
+**Album:** Xenocide
 
 &nbsp;
  
