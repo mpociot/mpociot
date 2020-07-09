@@ -10,10 +10,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b2737805654f39f6d2f79d817fb8">](https://open.spotify.com/track/3Nj2LHRyOzHYx8xbRqtlMT)
-The Reign of Kindo - Great Blue Sea
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b2738d0ed0c4517c60b9927937fd">](https://open.spotify.com/track/4QTBcmy1AOw7vL5bzLZknI)
+The Black Dahlia Murder - Verminous
 
-**Album:** Rhythm, Chord &amp; Melody
+**Album:** Verminous
 
 &nbsp;
  
