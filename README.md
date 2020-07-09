@@ -10,10 +10,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273eb30bac2f5895d442897d7ae">](https://open.spotify.com/track/3FlI2eja7eNFekYk3vtLZO)
-DADS - Dads (feat. Berried Alive &amp; Lucas Mann)
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273a335f2f17db481c4ee8736be">](https://open.spotify.com/track/6CDXtdbDJqRj3bvcKnevFd)
+Sithu Aye - The Andromedan, Pt. I: A Single Step
 
-**Album:** Dads (feat. Berried Alive &amp; Lucas Mann)
+**Album:** Set Course for Andromeda
 
 &nbsp;
  
