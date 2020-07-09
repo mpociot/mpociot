@@ -2,10 +2,10 @@
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273d3d227f6083fe51956e36e36">](https://open.spotify.com/track/7p2ROQkJ8IvOiyjZB8tKdk)
-Aversions Crown - Erebus
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b27318859d7ccaeaad58def0b6d9">](https://open.spotify.com/track/3CyJNVETICgG6wsx2MNEYB)
+I Hate Models - Eternal Loneliness
 
-**Album:** Xenocide
+**Album:** Totsuka No Tsurugi
 
 &nbsp;
  
