@@ -1,13 +1,13 @@
 # Welcome to my GitHub profile
 
-![](https://pociot.dev/counter.svg)
+![](https://pociot.dev/counter)
 
  ## Currently Playing ♬
 
-[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b273c4a605f426c97126212d52a2">](https://open.spotify.com/track/4GFAu0p2aXgXxzEquGiv3v)
-Dispatch - Open Up
+[<img align="left" width="100" src="https://i.scdn.co/image/ab67616d0000b2736900a48f8ce78e78dbde4402">](https://open.spotify.com/track/6B4OBOe0XCBTmLlIi4uR7U)
+Dispatch - Be Gone
 
-**Album:** Who Are We Living for?
+**Album:** America, Location 12
 
 &nbsp;
  
